@@ -1,2 +1,0 @@
-# aipropertysite.com
-AIPropertySite.com
